@@ -1,2 +1,2 @@
-idk i do stuff
-aka programming retard
+-Programming Retard 👍<br>
+- i <3 brainfuck
